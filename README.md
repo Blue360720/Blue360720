@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Blue360720
+- 👀 I’m interested in Video Games,Aikido,Programming,Theatre
+- 🌱 I’m currently learning Programmation
+- 📫 How to reach me : Discord
+- 😄 Pronouns: Blue
+- ⚡ Fun fact: I'm French
